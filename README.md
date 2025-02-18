@@ -1,6 +1,4 @@
-<div align="center">
-![](https://komarev.com/ghpvc/?username=Gwenrora)
-![](https://komarev.com/ghpvc/?username=Gwenrora&label=Helloes..&style=plastic&color=#ff69b4)
+
 <div align="center">
 <˗ˏˋ ꒰ 𝙎𝙞𝙜𝙣 𝙎𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙖𝙣𝙙 𝘼𝙩𝙖𝙗𝙤𝙤𝙠 ꒱ ˎˊ˗>
 <div align="center">
@@ -11,3 +9,7 @@
 <img src="https://64.media.tumblr.com/434577723f5559581590a70937a22924/3317892776fca4c1-ce/s500x750/4790686c217776b39972d4e87d2d061ae20e0dfb.pnj">
 <div align="center">
 <˗ˏˋ ꒰ 𝙗𝙧𝙤𝙠𝙨 ꒱ ˎˊ˗>
+<div align="center">
+
+
+![ignoredis](https://komarev.com/ghpvc/?username=Gwenrora&label=ignore+this..&style=plastic)
