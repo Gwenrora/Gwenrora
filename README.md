@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=Gwenrora&label=hi+ʚ♡ɞ&color=e49cb3)
 <div align="center">
 <˗ˏˋ ꒰ 𝙎𝙞𝙜𝙣 𝙎𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙖𝙣𝙙 𝘼𝙩𝙖𝙗𝙤𝙤𝙠 ꒱ ˎˊ˗>
 <div align="center">
