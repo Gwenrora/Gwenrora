@@ -1,5 +1,5 @@
 <div align="center">
-![](https://komarev.com/ghpvc/?Gwenrora=Gwenrora&label=Helloes..&style=plastic&color=ff69b4)
+![](https://komarev.com/ghpvc/?Gwenrora=Gwenrora&label=Helloes..&style=plastic&color=#ff69b4)
 <div align="center">
 <˗ˏˋ ꒰ 𝙎𝙞𝙜𝙣 𝙎𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙖𝙣𝙙 𝘼𝙩𝙖𝙗𝙤𝙤𝙠 ꒱ ˎˊ˗>
 <div align="center">
