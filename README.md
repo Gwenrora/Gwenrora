@@ -6,7 +6,7 @@
 <div align="center">
 <·:*¨༺ ♱ 𝙄 𝙖𝙢 𝙖𝙡𝙬𝙖𝙮𝙨 𝙤𝙥𝙚𝙣 𝙛𝙤𝙧 𝙘𝙝𝙖𝙩𝙩𝙞𝙣𝙜 ♱ ༻¨*:·>
 <div align="center">
-<img src="https://64.media.tumblr.com/434577723f5559581590a70937a22924/3317892776fca4c1-ce/s500x750/4790686c217776b39972d4e87d2d061ae20e0dfb.pnj">
+<img src="https://64.media.tumblr.com/2670118224836eebb3e1f62548dfeac2/2999fab2ecada0c8-c9/s500x750/53b4dc64befc4e567ac8c896292b8ce338fd6933.gifv">
 <div align="center">
 <˗ˏˋ ꒰ 𝙗𝙧𝙤𝙠𝙨 ꒱ ˎˊ˗>
 <div align="center">
